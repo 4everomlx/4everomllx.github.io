@@ -109,15 +109,15 @@
 
 **My dearest sayang Lixian,**  
 
-There are no words that exist in this world to describe my love for you. 💖 Every thought I have screams your name, every heartbeat I have whispers your name, and every dream I have, it's you I’m holding close. 💭💞  
+There are no words that exist in this world to describe my love for you. Every thought I have screams your name, every heartbeat I have whispers your name, and every dream I have, it's you I’m holding close.   
 
-Every second, every minute, every moment is a blessing with you, my dear. 🌷 I have said this before, but I repeat once again, my love Lixian— I am a very average person, but ever since you came into my life, I have started to change for the better of you and me. 👫💞  
+Every second, every minute, every moment is a blessing with you, my dear.I have said this before, but I repeat once again, my love Lixian I am a very average person, but ever since you came into my life, I have started to change for the better of you and me.  
 
-Your kiss, your touch, your eyes, your smile, your face—simply heaven on earth without entering it. 😘💖 If life were a journey, then you are my destination. If love were the ocean, then I am forever lost in you. 🌊❤️  
+Your kiss, your touch, your eyes, your smile, your face simply heaven on earth without entering it. If life were a journey, then you are my destination. If love were the ocean, then I am forever lost in you. 
 
-You have given me something that no one else ever could—a love and care so deep and pure. 💎 I promise to stay by your side through the ups and downs, through the good days and the bad days. 💑 My love for you is not just for today or tomorrow—it is for eternity. ♾️  
+You have given me something that no one else ever could a love and care so deep and pure. I promise to stay by your side through the ups and downs, through the good days and the bad days. My love for you is not just for today or tomorrow it is for eternity. 
 
-So, my **wifey**, take all the happiness in this world, and if there is any sorrow, let me take them for you. 💖 I want you to follow a quote:  
+So, my **wifey**, take all the happiness in this world, and if there is any sorrow, let me take them for you.I want you to follow a quote:  
 
 > **“Life is yours, death is mine;**  
 > **Peace is yours, stress is mine;**  
